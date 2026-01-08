@@ -1,1 +1,0 @@
-# Sarthak-Bansal-AI-ML-Resume
